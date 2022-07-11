@@ -1,1 +1,0 @@
-# sevenhost.xyz
